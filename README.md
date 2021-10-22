@@ -13,5 +13,5 @@
 - 💬 Ask me about ... -->
 - 📫 How to reach me: romiljain4570@gmail.com 
 <!-- - 😄 Pronouns: ... -->
-- ⚡ Fun fact: I am also a Musician...
+- ⚡ Interesting fact: I am also a Musician...
 
